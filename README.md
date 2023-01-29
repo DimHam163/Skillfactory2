@@ -1,1 +1,1 @@
-# Hello, my tцo game in Skillfactory
+# Hello, my two game in Skillfactory
